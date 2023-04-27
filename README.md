@@ -1,0 +1,2 @@
+# KMS_SERVER_AND_ACTIVITOR
+nope;)
